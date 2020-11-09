@@ -1,2 +1,2 @@
 # culito
-Culito - ¡Envía un detalle a esa persona especial!
+Culito - ¡La mejor tienda de ropa para ti!
